@@ -1,1 +1,0 @@
-# loruki_cyberd
